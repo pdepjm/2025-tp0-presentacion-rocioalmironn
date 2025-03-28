@@ -12,4 +12,7 @@
   * Me gustan los gatitos, tengo 3.
   * Prefiero el mate antes que el café.
   * Me encanta Emilia Mernes y Sabrina Carpenter <3 <3
+
+- Foto:)
+![image](Gordoyyo.jpg)
  
