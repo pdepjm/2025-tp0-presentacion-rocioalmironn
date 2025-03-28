@@ -13,6 +13,11 @@
   * Prefiero el mate antes que el café.
   * Me encanta Emilia Mernes y Sabrina Carpenter <3 <3
 
-- Foto:)
+- Fotos de mis gatitos :)
+- Rafael alias elgordo
 ![image](Gordoyyo.jpg)
- 
+- Mango 
+![image](mangomango.jpg)
+- Elsita
+![image](elsita.jpg)
+ *las fotos son muy grandes y no estan centradas, si alguien sabe como resolverlo porfi me dice*
